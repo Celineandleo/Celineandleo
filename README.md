@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Celineandleo
+- 👋 Hi, I’m @Celineandleo (Lawence Mingfield)
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning Ai
-- 💞️ I’m looking to collaborate on AI A-Karma Bear
+- 💞️ I’m looking to collaborate on AI A-Karma Bear to fight Dementia and Alzheimer's.
 - 📫 How to reach me LM00007@yahoo.com
 
 <!---
